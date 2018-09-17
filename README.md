@@ -10,3 +10,12 @@ It had to wake me up
 but I can't wake up
 (Wake me up inide)
 Save me
+Hey Ya
+Hey Ya
+Hey Ya
+Hey Ya
+Hey Ya
+Hey Ya
+Hey Ya
+Hey Ya
+Alright Alright Alright Alright Alright Alright Alright Alright Alright Alright Alright Alright Alright Alright Alright Alright Alright Alright 
